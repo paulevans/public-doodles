@@ -1,0 +1,1 @@
+Some doodles and sketches. Programmer art so don't expect to see anything worth using or training your AI on! Copyright Paul Evans 2023, Ask permission before using for anything beyond personal use. No AI Training.
